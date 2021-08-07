@@ -8,4 +8,4 @@ is it good cause now i'm typing like super slow
 i think i can improve whenever i want 
 by whenever i want i mean that when i start working on it, but the quesion is when ?
 
-fvyvt tvgyini
+
